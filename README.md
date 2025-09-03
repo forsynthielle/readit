@@ -20,5 +20,7 @@ i have a very crude humour that may inovlves sexual/offensive remarks or even pr
 
 #1 unhealthy, bittersweet gooner - currently greiving </3
 
-
 iwec, cuds r meh but i prefer hiding
+
+dni if u dont like
+ezez
