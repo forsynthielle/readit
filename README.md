@@ -18,7 +18,5 @@ fictionals pedos,zoos,incest,vomits,wounds,piss,cannibalism,s/h,non/dub/con,guro
 
 i have a very crude humour tht may ivloves sexual/offensive remarks if i got too comfortable
 
-#1 bittersweet unhealthy underaged gooner, currently grievin </3
-
 iwec, dni if u dont like
 ezeze
