@@ -16,4 +16,4 @@ i kinda draw wtv i want, both sfw and nsfw
 
 i have a very crude humour tht may ivloves sexual/offensive remarks if i got too comfortable so iwec it is
 
-im fine w any ships as long as yall chill, prosakens and darkships neutral for me
+im fine w any ships as long as yall chill, pro/dark/wtvships neutral for me
